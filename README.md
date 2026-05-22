@@ -1,0 +1,1 @@
+The Soulafide Summers program is an online, at-home enrichment experience offering a variety of art, music, STEM, and English Language Arts (ELA) classes for students of all ages. Taught by Ms. Christine, it provides a flexible, affordable way for children to learn and explore their creativity.
